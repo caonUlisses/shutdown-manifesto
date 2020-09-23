@@ -16,6 +16,6 @@ Feel free to put your name on the list of signatories:
 Ulisses Caon
 
 
-2020, the above authors
+2020, the above authors  
 this declaration may be freely copied in any form,
 but only in its entirety through this notice.
